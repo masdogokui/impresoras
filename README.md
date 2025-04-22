@@ -47,4 +47,9 @@ FOTOS PARA EL GITHUB PRINCIPAL
 ![Captura de pantalla 2025-04-22 100101](https://github.com/user-attachments/assets/3a65af7f-cc7e-40a5-9b1d-fc3ebd4e072f)
 ![Captura de pantalla 2025-04-22 100210](https://github.com/user-attachments/assets/2b6ea983-f42f-4582-b1d0-95f1cd9b1c72)
 ![Captura de pantalla 2025-04-22 100130](https://github.com/user-attachments/assets/f1631907-c6d5-4af2-9391-4dd68995d94a)
+![image](https://github.com/user-attachments/assets/86309c6f-d8f9-4e5e-a443-fe36d3fe9c2c)
+![image](https://github.com/user-attachments/assets/e11eaad6-f630-4ca0-b9ae-c5c095f3bae2)
+![image](https://github.com/user-attachments/assets/e08937c9-b4e1-4ed9-849e-d1f765d636ca)
+![image](https://github.com/user-attachments/assets/650daf87-b9e4-46f9-b2e9-1f561d89fb98)
+
 
