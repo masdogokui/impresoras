@@ -36,3 +36,15 @@
 ![Captura de pantalla 2025-04-03 101633](https://github.com/user-attachments/assets/dbdb9e60-5470-42ac-9619-fbeee8e6d703)
 ![Captura de pantalla 2025-04-03 101648](https://github.com/user-attachments/assets/848f45b6-2fc2-4ce4-afa5-c31863dd6c42)
 ![Captura de pantalla 2025-04-03 101722](https://github.com/user-attachments/assets/fb1296cd-46fc-4789-b601-436ebd52c3f4)
+
+
+-------------------------------------------------------------
+FOTOS PARA EL GITHUB PRINCIPAL
+
+
+![Captura de pantalla 2025-04-22 100006](https://github.com/user-attachments/assets/a4ea337d-7342-4fa2-98d6-4b94b3ae89c3)
+![Captura de pantalla 2025-04-22 100034](https://github.com/user-attachments/assets/b225cea2-1fa0-4254-b417-4a297f5180c8)
+![Captura de pantalla 2025-04-22 100101](https://github.com/user-attachments/assets/3a65af7f-cc7e-40a5-9b1d-fc3ebd4e072f)
+![Captura de pantalla 2025-04-22 100210](https://github.com/user-attachments/assets/2b6ea983-f42f-4582-b1d0-95f1cd9b1c72)
+![Captura de pantalla 2025-04-22 100130](https://github.com/user-attachments/assets/f1631907-c6d5-4af2-9391-4dd68995d94a)
+
